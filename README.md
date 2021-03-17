@@ -1,4 +1,4 @@
-# A--I-WAR
+# A--I WAR
 https://www.youtube.com/watch?v=CLrQPF6p2Xk&t=10s
 
 Description:
